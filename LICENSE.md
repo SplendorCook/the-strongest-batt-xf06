@@ -1,4 +1,4 @@
-#  
+#  Experience the strongest battlegrounds like never before with the strongest battlegrounds Script rare, the #1 Script. Includes esp and god mode for
 
 
 
